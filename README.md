@@ -1,1 +1,25 @@
 # CV
+
+RESUME
+Victor Sanchez
+Dallas TX
+Ph. ., (574) 596-0071 E-mail:victor_sanchez_de_leon@hotmail.com
+EDUCATIONAL BACKGROUND
+1990-1995 Accounting degree by La Universidad Cuauhtemoc Puebla Mexico, (college education)
+1995 Securities Trader and Advisor by La Escuela Bancaria y Comercial Mexico (Banking and Commercial School)
+WORK EXPERIENCE (USA)
+January 2022 to November 2023. Deputy Branch Manager in Dallas TX for Grameen America a non -profit Organization. I was responsible for the day-to-day operation and loan portfolio of the branch, strategizing or identifying what needs to happen financially for the company to achieve its short and long term goals, oversees employees to ensure quality and accuracy of loan amount, compliance of loan criteria, disbursements, collections, repayment and reconciliation of daily payments, monitor accurate records for all transitions. The position is responsible for the administration of the Grameen program.
+Sept 2016 – January 2022 . Interloans , Loan Processor , Dallas TX Collect data from customers to prepare loan applications, check of credit scores and credit report data, verify information such as salaries , debts and employment status .verify information provided on applications from all branches of Interloans, loans disbursements, organize calls according to delincuency. In charge of opening three agencies of loans in Texas (Houston and Dallas) hiring and training of Loan Processors
+Jobs in Mexico
+February 2013- 2016, Pro-Control, Pest Control and Fumigation. Accounting and Administrative Operator of Ranch agriculture produce and livestock breeding, sales, Payroll, taxes and maintenance.
+May 2010- nov 2012 Regional Manger of Prenda Facil/Cash America , (Pawn Shop) in Charge of 16 branches , administration of pawning and sales of jewelry, training in Cash America Headquarter in Fort Worth TX,USA in October 2010 .
+2008 January- May 2010 Regional Manager of Finsol Sofom , responsible of 8 branches operation in the Tlaxcala and Puebla Region , lending to small business . Functions:
+Responsible of the operation of five branches in Tlaxcala region (Zacatelco, Apizaco, Huamantla, Apan y Zacatlan). Company specialized in loans to small businesses. Functions: Development of the branches, loan allocation, sales, collection, hiring and training of personnel. Meet the budget for sales by a correct installment of policies and procedures, analysis of chart trends.
+2003aug-sept 2007. Provident Financial, a British Origin Company as Area Manager in charge of the Tlaxcala branch, the responsibility of the position is to manage and grow regional debit effectively in order to achieve business objectives by: Analyzing business trends and initiating business plans, coaching, supporting, and motivating sales people to develop their areas for a quality and quantity perspective, meet the budget of sales, and collection. Correct management of the branch in accordance to policies and procedures of the company. one of the seven managers who started the business in Mexico; developing the region from zero customers and representatives to more than 15,000 customers to nearly 200 reps in the area of Tlaxcala.
+1999 may-nov2001 Commercial Representative of Veit Brisay America, company based in Atlanta GA specialized in pressing equipment for the apparel and automotive industries. In charge of the Mexican market, the company needed to know who the main competitors were in Mexico, marketing research, customer service, sales. Thanks to the work done the company decided not to set up facilities in Mexico finding the right distributor with the infrastructure required like means of transportation, technicians staff, and warehouses, while providing a complete database of current and potential customers. I attended three international machinery shows in Atlanta, and I organized a presentation of our company in Expocostura in the World Trade Center in Mexico City.
+1996 (Jan)- 1998 Sept. BANAMEX BANK. Credit Auditor of the Credit Control Department. visiting Banamex branches all over the south division (six states). Auditing of lending executives by examining borrowers files. Main points to check out: verify that loans have been approved by the credit burrow, line of credit reported according to bank specifications, collateral released of bonding by another bank, statement of purpose obeyed, financial statements audited by an approved Accounting firm, financial ratios, valid contract of lending and conditions, date of payments determined by promissory notes, proxy of the borrower, credit information concerning borrowers, and so forth. The scope was to give a grade of commitment of the lending executive to commit the bank to a loan, the information was discussed in the Credit Control Department to determine the risk taken by the bank, correct and control on time possible bad loans, in order to reduce risks.
+Additional Information
+Marketing research and development course in Veit Brisay America facilities in Atlanta
+
+GA 2000 USA
+Pawn Shops administration in Cash America University in Fort Worth TX oct 2010 USA
