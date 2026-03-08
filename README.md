@@ -23,3 +23,5 @@ Marketing research and development course in Veit Brisay America facilities in A
 
 GA 2000 USA
 Pawn Shops administration in Cash America University in Fort Worth TX oct 2010 USA
+
+I maintain up-to-date accounting knowledge through Continuing Professional Education (CPE) in Auditing, Federal Tax, and International Accounting (Texas Society of Certified Public Accountants), Dallas, TX, 2025. 
