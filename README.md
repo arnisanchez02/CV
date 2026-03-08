@@ -7,6 +7,11 @@ Ph. ., (574) 596-0071 E-mail:victor_sanchez_de_leon@hotmail.com
 EDUCATIONAL BACKGROUND
 1990-1995 Accounting degree by La Universidad Cuauhtemoc Puebla Mexico, (college education)
 1995 Securities Trader and Advisor by La Escuela Bancaria y Comercial Mexico (Banking and Commercial School)
+Corporacio ́n S ́anchez de Leon Jan 2024 – Present Accountant (Independent Contractor)
+• Provide accounting services including financial recordkeeping, transaction reconciliation, and preparation of financial reports.
+• Maintain organized accounting documentation supporting internal controls and audit readi- ness.
+• Analyze financial transactions to ensure accuracy and compliance with accounting standards
+
 WORK EXPERIENCE (USA)
 January 2022 to November 2023. Deputy Branch Manager in Dallas TX for Grameen America a non -profit Organization. I was responsible for the day-to-day operation and loan portfolio of the branch, strategizing or identifying what needs to happen financially for the company to achieve its short and long term goals, oversees employees to ensure quality and accuracy of loan amount, compliance of loan criteria, disbursements, collections, repayment and reconciliation of daily payments, monitor accurate records for all transitions. The position is responsible for the administration of the Grameen program.
 Sept 2016 – January 2022 . Interloans , Loan Processor , Dallas TX Collect data from customers to prepare loan applications, check of credit scores and credit report data, verify information such as salaries , debts and employment status .verify information provided on applications from all branches of Interloans, loans disbursements, organize calls according to delincuency. In charge of opening three agencies of loans in Texas (Houston and Dallas) hiring and training of Loan Processors
