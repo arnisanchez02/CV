@@ -7,7 +7,7 @@ Ph. ., (574) 596-0071 E-mail:victor_sanchez_de_leon@hotmail.com
 EDUCATIONAL BACKGROUND
 1990-1995 Accounting degree by La Universidad Cuauhtemoc Puebla Mexico, (college education)
 1995 Securities Trader and Advisor by La Escuela Bancaria y Comercial Mexico (Banking and Commercial School)
-Corporacio ́n S ́anchez de Leon Jan 2024 – Present Accountant (Independent Contractor)
+Corporativo Sanchez de Leon Jan 2024 – Present Accountant (Independent Contractor)
 • Provide accounting services including financial recordkeeping, transaction reconciliation, and preparation of financial reports.
 • Maintain organized accounting documentation supporting internal controls and audit readi- ness.
 • Analyze financial transactions to ensure accuracy and compliance with accounting standards
